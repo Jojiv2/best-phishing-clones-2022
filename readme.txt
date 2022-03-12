@@ -3,4 +3,4 @@ all of them are undetected
 
 have a great hack.
 
-> Discord server : [Join](https://discord.gg/acbeVxY5ra)
+Discord server : [Join](https://discord.gg/acbeVxY5ra)
